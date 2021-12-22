@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Vamshikrsn14
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning Btech
+- 🌱 I’m currently a beginner in coding
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me insta @vamshi_pandugula
 
